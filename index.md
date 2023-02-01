@@ -119,6 +119,15 @@ div#header h2:after {
 ![](https://files.catbox.moe/piemyo.jpg)
 ![](https://files.catbox.moe/joc1g0.jpg)
 
+### xxs不承认自己是xxs
+```
+0717placeholder
+给： HelloOSMe
+Re: (No subject)1 Feb 2023, 11:13
+----------
+I'm not a pupil！
+```
+
 ## 各种被封场面
 
 ### 这号，注销吧
@@ -135,3 +144,5 @@ div#header h2:after {
 
 ### 论使用 Cloudflare 的好处
 ![](https://files.catbox.moe/lffkvr.jpg)
+
+### 这玩意刚加入 星语的小屋 就被OS封禁了
