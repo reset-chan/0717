@@ -4,12 +4,7 @@
 - [各种言论](#各种言论)
 - [各种被封场面](#各种被封场面)
 
-注意：令人反感的东西，就不要大范围扩散。
-
-
-记住：
-
-> **Don't be a dick.**
+本页面内容使用[CC0](https://creativecommons.org/publicdomain/zero/1.0/)授权。
 ---
 
 ## 炸站所放的内容
