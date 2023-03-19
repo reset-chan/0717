@@ -1,0 +1,8 @@
+{
+  "rewrites": [
+    {
+      "source": "/",
+      "destination": "https://yu22c0w0.github.io/0717/"
+    }
+  ]
+}
