@@ -173,7 +173,4 @@ I'm not a pupil！
 #### 《梅开二度》
 ![](https://s1.ax1x.com/2023/02/13/pSoaZ90.jpg)
 
-#### 《三阳开泰》
-![](https://s1.ax1x.com/2023/02/18/pSLl3wj.jpg)
-
 ### 这玩意刚加入 星语的小屋 就被OS封禁了
