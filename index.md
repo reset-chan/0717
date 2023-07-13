@@ -165,6 +165,13 @@ I'm not a pupil！
 
 ![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-4.jpg)
 
+## 键政学傻的后果
+
+![](http://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-5)
+
+## 号被盗后的无能愤怒（第二次盗号）
+![](http://wbldxzfe230.wikidot.com/local--files/main:start/0717-6)
+
 ## 各种被封场面
 
 ### 这号，注销吧
