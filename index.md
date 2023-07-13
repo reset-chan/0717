@@ -141,7 +141,7 @@ I'm not a pupil！
 我这个号原本是盗的，本来就有
 ```
 
-### 经典言论
+---
 
 ```
 今天批斗了一只猿小鬼（涉黄小鬼，以耍流氓、辱骂同学被学校处分），加上学习也不错心情十分舒畅😄😄
@@ -153,7 +153,17 @@ I'm not a pupil！
 我没研究过米哈游这个公司，也没研究过它的资本方和技术方，到底是哪个派系定调的内容，是对中华文化的漠视还是用了日本团队导致文化渗透，但我体验的时候会有异样的不舒适感，这可能是引发大规模争论的原因之一。
 ```
 
+![](https://cbox.im/i/Ed20k.jpg)
+
 ![](https://s1.ax1x.com/2023/04/15/p9ps4eg.jpg)
+
+![](https://wbldxzfe230.wikidot.com/local--files/main:start/0717-1.jpg)
+
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-2.jpg)
+
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-3.jpg)
+
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-4.jpg)
 
 ## 各种被封场面
 
