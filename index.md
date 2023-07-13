@@ -157,7 +157,7 @@ I'm not a pupil！
 
 ![](https://s1.ax1x.com/2023/04/15/p9ps4eg.jpg)
 
-![](https://wbldxzfe230.wikidot.com/local--files/main:start/0717-1.jpg)
+![](https://wbldxzfe230.wdfiles.com/local--files/main:start/0717-1.jpg)
 
 ![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-2.jpg)
 
@@ -166,11 +166,28 @@ I'm not a pupil！
 ![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-4.jpg)
 
 ## 键政学傻的后果
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-5)
 
-![](http://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-5)
+## 号被盗后的无能狂怒（第二次盗号）
+![](https://wbldxzfe230.wdfiles.com/local--files/main:start/0717-6)
 
-## 号被盗后的无能愤怒（第二次盗号）
-![](http://wbldxzfe230.wikidot.com/local--files/main:start/0717-6)
+## 素质水平一目了然
+![](https://wbldxzfe230.wdfiles.com/local--files/main:start/0717-7)
+
+![](https://wbldxzfe230.wdfiles.com/local--files/main:start/0717-8)
+
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-9)
+
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-10)
+
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-11)
+
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-12)
+
+![](https://wbldxzfe230.wdfiles.com/local--files/main:start/0717-13)
+
+![](https://wbldxzfe230.wdfiles.com/local--files/main:start/0717-14)
+
 
 ## 各种被封场面
 
