@@ -202,6 +202,7 @@ I'm not a pupil！
 * [Netboard对于0717 的处置职员贴](http://netboard.wikidot.com/forum/t-15428586/)
 * [后室中分封禁公告](http://backrooms-oversight-cn.wikidot.com/forum/t-15518797/) 
 * [Wikidot 联盟的公告](http://lm-wiki.wikidot.com/forum/t-15429609/)
+* [云室的封禁公告](http://backroom-wiki-cn.wikidot.com/forum/t-14619020#post-6149230)
 
 ### 《关于这家伙连用户名都不改这件事》
 ![](https://files.catbox.moe/7peb5u.jpg)
