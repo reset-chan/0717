@@ -157,7 +157,7 @@ I'm not a pupil！
 
 ![](https://s1.ax1x.com/2023/04/15/p9ps4eg.jpg)
 
-![](https://wbldxzfe230.wdfiles.com/local--files/main:start/0717-1.jpg)
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-1.jpg)
 
 ![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-2.jpg)
 
@@ -169,15 +169,29 @@ I'm not a pupil！
 ![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-5)
 
 ## 号被盗后的无能狂怒（第二次盗号）
-![](https://wbldxzfe230.wdfiles.com/local--files/main:start/0717-6)
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-6)
 
-![](https://wbldxzfe230.wdfiles.com/local--files/main:start/0717-15)
+## 《水军》
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-16)
 
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-17)
+
+## 早期猿猴试图模仿人类珍贵影像
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-15)
+
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-19)
+
+## 早期猿猴试图在Cbox聊天室、Typecho评论区发评论的珍贵影像
+
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-20)
+
+## 试图复活自己网站的猴子
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-18)
 
 ## 素质水平一目了然
-![](https://wbldxzfe230.wdfiles.com/local--files/main:start/0717-7)
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-7)
 
-![](https://wbldxzfe230.wdfiles.com/local--files/main:start/0717-8)
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-8)
 
 ![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-9)
 
@@ -187,9 +201,9 @@ I'm not a pupil！
 
 ![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-12)
 
-![](https://wbldxzfe230.wdfiles.com/local--files/main:start/0717-13)
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-13)
 
-![](https://wbldxzfe230.wdfiles.com/local--files/main:start/0717-14)
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-14)
 
 
 ## 各种被封场面
