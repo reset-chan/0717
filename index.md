@@ -181,7 +181,7 @@ I'm not a pupil！
 
 ![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-19)
 
-## 早期猿猴试图在Cbox聊天室、Typecho评论区发评论的珍贵影像
+## 早期猿猴试图在Cbox聊天室、Typecho评论区发Wikidot语法的珍贵影像
 
 ![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-20)
 
