@@ -176,20 +176,36 @@ I'm not a pupil！
 
 ![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-17)
 
-## 早期猿猴试图模仿人类珍贵影像
+## Cbox信息记录
 ![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-15)
 
 ![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-19)
 
 ![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-22)
 
+![](https://wbldxzfe230.wikidot.com/local--files/main:start/0717-23-new)
+
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-24)
+
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-25)
+
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-26)
+
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-27)
+
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-28)
+
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-29)
+
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-30)
+
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-31)
+
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-32)
+
 ## 早期猿猴试图在Cbox聊天室、Typecho评论区发Wikidot语法的珍贵影像
 
 ![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-20)
-
-![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-22-new)
-
-![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-23)
 
 ## 试图复活自己网站的猴子
 ![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-18)
