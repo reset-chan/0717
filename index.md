@@ -181,9 +181,15 @@ I'm not a pupil！
 
 ![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-19)
 
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-22)
+
 ## 早期猿猴试图在Cbox聊天室、Typecho评论区发Wikidot语法的珍贵影像
 
 ![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-20)
+
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-22-new)
+
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-23)
 
 ## 试图复活自己网站的猴子
 ![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-18)
