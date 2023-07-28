@@ -203,7 +203,15 @@ I'm not a pupil！
 
 ![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-32)
 
-![](http://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-33)
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-33)
+
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-34)
+
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-36)
+
+## 贴吧迷惑言论
+
+![](http://wbldxzfe230.wikidot.com/local--files/main:start/0717-35)
 
 ## 早期猿猴试图在Cbox聊天室、Typecho评论区发Wikidot语法的珍贵影像
 
