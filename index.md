@@ -165,18 +165,21 @@ I'm not a pupil！
 
 ![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-4.jpg)
 
-## 键政学傻的后果
+### 键政学傻的后果
 ![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-5)
 
-## 号被盗后的无能狂怒（第二次盗号）
+### 多管闲事
+![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-37-new)
+
+### 号被盗后的无能狂怒（第二次盗号）
 ![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-6)
 
-## 《水军》
+### 《水军》
 ![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-16)
 
 ![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-17)
 
-## Cbox信息记录
+### Cbox信息记录
 ![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-15)
 
 ![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-19)
@@ -209,18 +212,21 @@ I'm not a pupil！
 
 ![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-36)
 
-## 贴吧迷惑言论
+### 贴吧迷惑言论
 
 ![](http://wbldxzfe230.wikidot.com/local--files/main:start/0717-35)
 
-## 早期猿猴试图在Cbox聊天室、Typecho评论区发Wikidot语法的珍贵影像
+### 早期猿猴试图在Cbox聊天室、Typecho评论区发Wikidot语法的珍贵影像
 
 ![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-20)
 
-## 试图复活自己网站的猴子
+### 《§e》
+![](http://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-38)
+
+### 试图复活自己网站的猴子
 ![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-18)
 
-## 素质水平一目了然
+### 素质水平一目了然
 ![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-7)
 
 ![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-8)
