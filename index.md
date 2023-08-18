@@ -123,6 +123,20 @@ div#header h2:after {
 ### 关于
 ![](https://files.catbox.moe/2mdvth.jpg)
 
+### 在0717试图气走别人时，别人在看笑话
+```
+0717placeholder:
+总算找到这个地富反坏右分子黑五类臭老九投机倒把通敌叛国的垃圾啦！被批斗得夹着尾巴逃跑的懦夫！我要扬了这个页面！！！
+
+0717placeholder：哎呀这是怎么啦，不关我的事呀
+瞧瞧你自己写的那些东西，大多血腥暴力，对社会和国家有什么贡献？以后你毕业能干什么？去美国刷盘子苟活？被白人歧视的生活未免太憋屈了…
+停止写这些东西去写几篇论文吧，做一个对社会有贡献的人！
+
+ChiyokoYukari：@0717placeholder 好听 爱听 多骂点 要去了❤️
+
+22c：@0717placeholder 0717快骂吧，不骂我们就没有笑话看了😭
+```
+
 ### 《骂着骂着号就半废了》
 ![](https://files.catbox.moe/piemyo.jpg)
 ![](https://files.catbox.moe/joc1g0.jpg)
