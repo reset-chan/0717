@@ -220,6 +220,10 @@ I'm not a pupil！
 
 ![](https://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-36)
 
+### 鹦鹉与八哥
+
+![](http://wbldxzfe230.wdfiles.com/local--files/main%3Astart/0717-43)
+
 ### 贴吧迷惑言论
 
 ![](http://wbldxzfe230.wikidot.com/local--files/main:start/0717-35)
