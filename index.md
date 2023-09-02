@@ -121,7 +121,7 @@ div#header h2:after {
 * http://ubmh.wikidot.com/ip/comments/show#post-5797665
 
 ### 关于
-![](https://files.catbox.moe/2mdvth.jpg)
+![](/img/0717-1.jpg)
 
 ### 在0717试图气走别人时，别人在看笑话
 ```
